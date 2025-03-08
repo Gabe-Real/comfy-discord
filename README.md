@@ -1,2 +1,2 @@
 **For support join my discord →**
-🔗https://discord.com/invite/EJsWzezUJP
+🔗[https://discord.gg/mandoxdnation](https://discord.com/invite/EJsWzezUJP)
